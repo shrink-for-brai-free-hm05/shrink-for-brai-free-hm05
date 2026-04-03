@@ -1,4 +1,4 @@
-
+escape waves auto Scripts: auto-escape & inf-luck is your go-to resource for escape waves domination. Featuring auto-escape and inf-luck, our scripts are engineered to maximize your efficiency and enjoyment. Say goodbye to tedious grinding and hello to effortless victories.
 
 
 ---
